@@ -1,0 +1,5 @@
+- 👋 Hi, this is Sarmistha Gain
+- 💞️ I’m a newbie to techworld
+- 👀 I’m currently focussing in exploring and learning
+- 🌱 I’m a BTECH undergraduate stydent
+- 📫 contact me by email: sarmisthagain006@gmail.com
